@@ -1,0 +1,2 @@
+# Wplace
+Privacy Policy
